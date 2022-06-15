@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @viandrad3
-- 👀 I’m interested in  nada 
+- 👀 I’m interested in  cbs
 - 🌱 I’m currently learning  sla
 - 💞️ I’m looking to collaborate on  pa
 - 📫 How to reach me  pa
